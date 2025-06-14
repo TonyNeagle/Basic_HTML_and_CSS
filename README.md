@@ -1,0 +1,1 @@
+various challenges for study
